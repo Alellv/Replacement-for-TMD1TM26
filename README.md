@@ -7,3 +7,5 @@ So this is a 3D replacemnt part ive used so i didnt had to buy a brand new part 
 I recomend using PLA if you want to 3d print it.
 
 I hope you find it usefull 
+# Amazon review Complaining about the same thing
+![image](https://github.com/Alellv/Replacement-for-TMD1TM26/assets/148279307/17f0ede1-d056-47a9-84fd-646d4a076b91)
